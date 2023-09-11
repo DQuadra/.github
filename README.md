@@ -9,7 +9,7 @@
 
 - 👯 Eu também colaborei um pouquinho com o Big Linux [Big Linux](https://www.biglinux.com.br/)
 
-- 📫 Onde encontrar-me **claudio.quadra@gmail.com**
+- 📫 Onde me encontrar **claudio.quadra@gmail.com**
 
 - ⚡ Um fato engraçado sobre mim **Por vezes tento ser engraçado!** <p align="left">
 
